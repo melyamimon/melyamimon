@@ -1,4 +1,4 @@
-meu nome é Melissa Yasmim,
+Meu nome é Melissa Yasmim,
 tenho 16 anos,
 estou no primeiro do EM.
 Meu maior interesse no momento é conseguir terminar a escola,
